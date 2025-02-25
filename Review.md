@@ -1,5 +1,5 @@
 # 🍕 Joe's Pizza Review
-- Rating: -⭐
-- Price: $$$$$$$
-- Must Try: n/a
-- Notes: i am so mad     
+- Rating: ⭐⭐⭐⭐⭐⭐⭐⭐⭐
+- Price: $$ amazing pizza omg
+- Must Try: Everything on the menu
+- Notes: I wish i could live here
